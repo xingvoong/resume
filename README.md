@@ -1,4 +1,4 @@
 # resume
 
 A copy of my resume
-https://drive.google.com/drive/u/0/folders/1oynNJyBL8poGzaQ7PDWffLgqN7W5dltp
+https://drive.google.com/file/d/1Ui9LMebd7GWBF9flP3Un294irZJ7D4UC/view?usp=sharing
